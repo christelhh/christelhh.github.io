@@ -8,5 +8,9 @@ Robin McLaurin Williams (* 21. Juli 1951 in Chicago, Illinois; † 11. August 20
 * Freundlich
 * herzlich
 * Charactervoll 
+
+
+> Verzagter Arsch hat keinen Pfurz!
+
  
 
