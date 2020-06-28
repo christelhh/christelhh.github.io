@@ -12,5 +12,5 @@ Robin McLaurin Williams (* 21. Juli 1951 in Chicago, Illinois; † 11. August 20
 
 > Verzagter Arsch hat keinen Pfurz!
 
- 
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/05/Robin_Williams_2011a_%282%29.jpg/220px-Robin_Williams_2011a_%282%29.jpg"/>
 
